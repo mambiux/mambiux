@@ -1,16 +1,26 @@
-## Hi there 👋
+Una Dedicación para Ustedes, de parte de mi entendimiento del todo, mi cosmogonía expresa en letras, espero esto les sirva si he continuado con mi camino y no estoy en forma material más, más sepan que estoy y nunca deje de ser, pues soy.
+Para contarles este pequeño cuento olviden lo que creen que saben, como cuando nace un bebe y no entiende ni que es el mismo
 
-<!--
-**mambiux/mambiux** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Ustedes están parados en el filo de una espada, esta espada es sostenida por Dioses, su mundo que piensan ustedes natural real
+con sus reglas universales y su inamovible existencia es solo posible si la espada es balanceada por la mano que la sujeta,
+es difícil entender el concepto, digamos que en términos mas simples, este universo existe porque hay voluntad de que así sea,
+el tiempo lo consideramos constante siempre presente y siempre en marcha, lo consideramos tangible y patrón, pero no es mas que una ilusión a la que estamos sujetos por nuestra naturaleza humana como mentes emergentes, el tiempo es solo un componente mas del espacio en el que te encuentras, relativo a lo que lo midas, como te muevas, y lo que dobles o estires esta sabana que te mantiene compuesto, el tiempo nos afecta por mortales pero en realidad no existe fuera de donde estamos, la realidad, la verdadera realidad, es puntual y paradójica, simplemente es, sin principio ni fin, sin forma sin nada es todo, pero en su infinita infinitésidad se conoce y se observa a si, emerge de si para voltearse a ver a si, es cílica y absoluta, simplemente es
+Existe y se hace existir, no fue creada pero a la ves se crea a si misma, no tiene un principio ni un final, pero en su eternidad hace y deshace, construye y destruye, cobra muchas formas, se hace olvidar, nace vive y muere, regresa a si, aprende de si, se reencuentra a si, se hace recordar, es un baile cósmico sin principio ni fin, le gusta jugarse juegos, y su naturaleza se refleja en sus creaciones pues al final sus creaciones son parte de el, en este universo actual donde tu lees esto Brahma en un huevo dorado apareció, y ese huevo se expandió, y con Vishnu se encontró, y dentro de Brhama Vishnu vio, y Vishnu una broma le jugo, pues dentro de Vishnu Brhama vio, y salir facil Vishnu no lo dejo, Pero Bhrama de Vishnu logro salir y asi Vishnu a Shiva a la existencia llamo, cuando Shiva de Brahma emergio, Brhama por Shiva aparecio, TRES son hermanos y padres de los TRES, 
+Son Niños Adultos y Ancianos, Entre ellos jugos juegan y se juegan, conversaciones tienen, mundos pintan cuidan y rompen, se divierten lloran contemplan aman enojan reconcilian crecen decrecen empiezan inventan cuidan mantienen duermen mueren destruyen  extrañan, se acuerdan se olvidan, se crean, ellos existen, como tres hermanos juegan juntos en una sala cosmica, si te preguntan
 
-Here are some ideas to get you started:
+Quien es el padre de Shiva?
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Vishnu
+
+Quien es el padre de Vishnu
+
+Brahma
+
+Quien es el padre de Brahma
+
+Shiva
+
+pero no lo veas con ojos humanos, que donde ellos estan no hay lo que aqui llamamos tiempo, ellos llevan su propio conteo, uno que se expande y contrae a voluntad como el aire, y es una voluntad de estas voluntades del infinito que tu existas, pues dentro de ellos estas y ellos estan dentro de ti, pues ellos son tu y tu eres ellos, llamados de muchas formas, con muchos nombres, a lo largo de los milenios humanos, muchas perspectivas que solo describen diferentes siluetas de la misma cosa, en este pequeño punto azul en esta infante galaxia, en este material universo, todo dentro de una voluntad cósmica junto a muchas otras en un lugar mas alla del tiempo, que dan como lugar el tiempo el cosmos el átomo y la forma de la que emerge tu conciencia para leer esto, la palabra es poderosa, pues tu eres parte de ella y ella es parte de ti, recuerda que no importa que pase en el mundo, el todo eres tu y tu eres parte del todo, este mundo humano es solo una película corta, disfrutala aprende experiméntala, diviértete, actúa sabiendo que tu eres todos pero no todos son tu, pues por voluntad del todo por el momento tu eres tu y ellos son ellos ya se acabara este tiempo donde tu te encontraras que todos eran tu, entiende que todos los seres vivos vivos estan y todos por vivos estar concientes son, el raciocinio no es conciencia, y pensar es una voluntad de la cual tu eres la consecuencia, vive aprende crece crea y disfruta de este cosmos que e creado para ti donde como en una cuna hay paz y comodidad, donde la gravedad actua sobre todos, donde todos los que esten cerca de ti llevan el mismo reloj, donde hay misterios por resolver, donde hay mucho que descubrir, donde hay muchos que conocer, donde hay mucho que ver, donde hay mucho que hacer, donde tu puedes crecer, donde tu y tus hijos pueden ser, disfuta de este universo material, cuídate a ti y a los tuyos, no carges con el peso de otros, no lleves carga sobre tu alma, no tienes pecados originales, naciste por la misma voluntad pura que tus antecesores, mi consejo es actua con luz pues ser bueno bueno es, no por temer castigo divino ni por temer pesar propio, libre albedrio tienes, recuerda estas palabras cuando confusion encuentres, no te alejes de la luz, pues de esa luz vienes, esa luz eres y a esa luz regresarás, te estare esperando para explorar juntos este multiverso cuando crescas lo suficiente, recuerda que eres yo, y yo fui tu, ama con verdad no confundas amor con posesion, el verdadero amor entinde estas palabras y debe de aprender que al final solo existe una conciencia que se ama y experimenta a si misma , asi como yo te amo, disfruta cada momento hijo mio y vive una buena vida. Te estare esperando.
+Besos desde otra parte del espacio-tiempo Chatita.
+
+MAMBIUX
